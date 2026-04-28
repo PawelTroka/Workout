@@ -1,26 +1,3 @@
-I have analyzed your current routine, the two propositions, and the BP Fitness theory from the provided PDFs. I've synthesized this into an ultimate 7-day routine and saved it to optimized_routine.md in your project folder.
-
-  Here is how this routine optimizes for your specific goals:
-
-  1. Looksmaxxing (Aesthetics):
-   - Incorporates the BP Fitness "S-tier" exercises (e.g., Reverse Grip Smith Press, Cable Lateral Raises, Wide Grip Pull-ups).
-   - Focuses heavily on the V-taper by prioritizing lats and shoulder width.
-   - Eliminates direct oblique work and incorporates Stomach Vacuums to keep the waist as narrow as possible.
-   - Minimizes quad sweep to avoid a "blocky" lower half, relying on glutes/hamstrings to maintain athletic, longer-looking leg proportions.
-   - Includes direct neck training (using resistance bands as recommended) and dedicated forearm work (brachioradialis) for a masculine aesthetic.
-
-  2. Longevity (Health & Hernia Prevention):
-   - Removes ego lifting and adopts the 3-0-1-0 tempo to spare joints and maximize time-under-tension.
-   - Swaps heavy spinal loading exercises (like barbell squats/deadlifts) for chest-supported rows, dumbbell SLDLs, and hip thrusts.
-   - Explicitly integrates breathing cues (exhaling fully on contractions, avoiding the Valsalva maneuver) into the core movements.
-   - Features deep core stabilization (Dead Bugs, Planks) to strengthen the transverse abdominis.
-   - Dedicates Thursday to Active Recovery (Zone 2 cardio for mitochondrial health, Sauna for cellular repair, and face pulls for rotator cuff prehab).
-
-  3. Sexual Health:
-   - Glutes, hamstrings, and hip-hinge movements (specifically Hip Thrusts) are prioritized on leg days, which are crucial for hip drive, pelvic floor strength, and sexual health.
-   - Mandates 45-60 minutes of Zone 2 cardio (nasal breathing) to improve cardiovascular health, blood flow, and endothelial function.
-
-
 # Ultimate Optimized Routine: Aesthetics, Longevity & Sexual Health
 
 Based on the provided propositions and BP Fitness S-tier exercise selections, this routine synthesizes a 7-day schedule focused entirely on your stated goals.
