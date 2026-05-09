@@ -57,8 +57,8 @@
 - **Upper Back**: T-Bar Kelso Shrug or Chest-Supported Dumbbell Row: 3 × 10-12 reps
 - **Lats (Stretch)**: One Arm Dumbbell Row: 3 × 10-12 reps/side
 - **Rear Delts**: Reverse Pec Deck: 3 × 15-20 reps
-- **Biceps**: Seated Dumbbell Curls: 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Hammer Curls: 3 × 12-15 reps
+- **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Core**: Hanging Leg Raises: 3 × 10-12 reps (Control the swing)
 
 ### **Sunday: Legs 2 (Posterior Chain & Recovery)**
