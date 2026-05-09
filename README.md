@@ -1,7 +1,5 @@
 # Ultimate Optimized Routine: Aesthetics, Longevity & Sexual Health
 
-Based on the provided propositions and BP Fitness S-tier exercise selections, this routine synthesizes a 7-day schedule focused entirely on your stated goals.
-
 ## Core Philosophy:
 - **Looksmaxxing (Aesthetics):** Focuses heavily on the V-taper (broad shoulders/lats), an upper chest "shelf", a masculine neck, and thick forearms. **Zero direct oblique work** and stomach vacuums are included to keep the waist tight. Direct quad work is minimized to prevent a "blocky" lower half, focusing instead on an athletic posterior chain.
 - **Longevity & Health:** Ego lifting is removed. Use a **3-0-1-0 tempo** (3 seconds lowering, 1 second lifting) to protect joints and maximize hypertrophy. **Hernia Prevention:** Exhale on the concentric (lifting) phase—no Valsalva maneuver. Spinal loading is minimized by prioritizing chest-supported back exercises and dumbbell variations over heavy barbell lifts. 
