@@ -4,7 +4,7 @@
 - **Looksmaxxing (Aesthetics):** Focuses heavily on the V-taper (broad shoulders/lats), an upper chest "shelf", a masculine neck, and thick forearms. **Zero direct oblique work** and stomach vacuums are included to keep the waist tight. Direct quad work is minimized to prevent a "blocky" lower half, focusing instead on an athletic posterior chain.
 - **Longevity & Health:** Ego lifting is removed. Use a **3-0-1-0 tempo** (3 seconds lowering, 1 second lifting) to protect joints and maximize hypertrophy. **Hernia Prevention:** Exhale on the concentric (lifting) phase—no Valsalva maneuver. Spinal loading is minimized by prioritizing chest-supported back exercises and dumbbell variations over heavy barbell lifts. 
 - **Sexual Health:** Heavy emphasis on glutes, hamstrings, and hip hinge movements (like Hip Thrusts) for hip power and pelvic floor health. Mandatory Zone 2 cardio is included for cardiovascular and endothelial health.
-**Synergy:** Workouts are structured to minimize overlap. Push days alternate between (Chest Press + Lateral Raise) and (Shoulder Press + Pec Fly). Pull days alternate Iliac/Upper Back with Thoracic/Kelso Shrugs.
+- **Synergy:** Workouts are structured to minimize overlap. Push days alternate between (Chest Press + Lateral Raise) and (Shoulder Press + Pec Fly). Pull days alternate Iliac/Upper Back with Thoracic/Kelso Shrugs.
 
 ---
 
