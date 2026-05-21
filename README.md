@@ -29,8 +29,8 @@
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
 *Focus: Sexual health (hip power), joint preservation, athletic posterior chain.*
-- **Hamstrings**: Seated or Lying Leg Curl: 4 × 12-15 reps
 - **Glutes/Hips**: Hip Thrusts: 4 × 10-12 reps (Crucial for sexual health. Squeeze at top, focus on pelvic floor engagement)
+- **Hamstrings**: Seated Leg Curl: 4 × 12-15 reps
 - **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 3 × 15 reps
 - **Calves**: Seated or Leg Press Calf Raises: 4 × 15-20 reps (Slow negative)
 - **Core**: Dead Bugs: 3 × 60s (Deep core stability, excellent for hernia prevention)
