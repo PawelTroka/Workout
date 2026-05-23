@@ -76,10 +76,10 @@
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
 ### **Saturday: Pull 2 (Upper Back, Biceps, Detail)**
-- **Upper Back**: T-Bar Kelso Shrug or Chest-Supported Dumbbell Row: 3 × 10-12 reps
 *Focus: Back thickness, posture and arm details (bicep peaks).*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
 - **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side
+- **Traps/Upper Back**: T-Bar Kelso Shrug or Chest-Supported DB Kelso Shrug: 3 × 10-12 reps
 - **Rear Delts**: Reverse Pec Deck: 3 × 15-20 reps
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
