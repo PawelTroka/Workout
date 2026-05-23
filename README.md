@@ -41,12 +41,12 @@
 
 ### **Tuesday: Pull (Lats, Biceps, Forearms)**
 *Focus: V-Taper width, bicep peaks, and forearm veins.*
-- **Mid-Back**: Pronated Grip Chest-Supported Machine Row: 3 × 10-12 reps (Saves lower back)
 - **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps
 - **Forearms**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
 - **Forearms**: Dumbbell Reverse Curl: 3 × 12-15 reps
 *Synergy: Iliac lat exercise + upper back row.*
 - **Iliac Lats (Width)**: Wide Grip Weighted Pull-ups (or assisted): 3 × 8-10 reps
+- **Upper/Mid Back**: Pronated Grip Chest-Supported Machine Row: 3 × 10-12 reps (Saves lower back)
 - **Core**: Decline Sit-ups or Hanging Leg Raises: 3 × 10-12 reps
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
