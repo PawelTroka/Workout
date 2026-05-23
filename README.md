@@ -39,7 +39,7 @@
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction)
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
-### **Tuesday: Pull (Lats, Biceps, Forearms)**
+### **Tuesday: Pull (Iliac Lats, Upper Back, Biceps, Forearms)**
 *Focus: V-Taper width, bicep peaks, and forearm veins.*
 *Synergy: Iliac lat exercise + upper back row.*
 - **Iliac Lats (Width)**: Wide Grip Weighted Pull-ups (or assisted): 3 × 8-10 reps
@@ -75,7 +75,7 @@
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
-### **Saturday: Pull 2 (Upper Back, Biceps, Detail)**
+### **Saturday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
 *Focus: Back thickness, posture and arm details (bicep peaks).*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
 - **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side
