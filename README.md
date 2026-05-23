@@ -10,6 +10,7 @@
 
 ### **Monday: Push (Upper Chest, Side Delts, Neck)**
 *Focus: Upper chest shelf, shoulder width, and neck thickness.*
+*Synergy: Chest Press + Lateral Raise.*
 - **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 3 × 8-10 reps
 - **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
 - **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps
@@ -25,6 +26,7 @@
 - **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps
 - **Forearms**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
 - **Forearms**: Dumbbell Reverse Curl: 3 × 12-15 reps
+*Synergy: Iliac lat exercise + upper back row.*
 - **Core**: Decline Sit-ups or Hanging Leg Raises: 3 × 10-12 reps
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
@@ -44,6 +46,7 @@
 
 ### **Friday: Push 2 (Shoulders, Upper Chest, Neck)**
 *Focus: The "capped" 3D shoulder look and masculine neck.*
+*Synergy: Shoulder Press + Pec Fly.*
 - **Shoulders**: Machine Shoulder Press (Pronated grip): 3 × 8-10 reps
 - **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps (Stretch focus)
@@ -53,9 +56,10 @@
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
 ### **Saturday: Pull 2 (Upper Back, Biceps, Detail)**
-*Focus: Back thickness for posture and arm details.*
 - **Upper Back**: T-Bar Kelso Shrug or Chest-Supported Dumbbell Row: 3 × 10-12 reps
 - **Lats (Stretch)**: One Arm Dumbbell Row: 3 × 10-12 reps/side
+*Focus: Back thickness, posture and arm details (bicep peaks).*
+*Synergy: Thoracic lat + upper back/Kelso shrug.*
 - **Rear Delts**: Reverse Pec Deck: 3 × 15-20 reps
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
