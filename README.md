@@ -35,7 +35,7 @@
 - **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
 - **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 3 × 12-15 reps
-- **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light)
+- **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light to avoid injury)
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction)
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
