@@ -5,6 +5,25 @@
 - **Longevity & Health:** Ego lifting is removed. Use a **3-0-1-0 tempo** (3 seconds lowering, 1 second lifting) to protect joints and maximize hypertrophy. **Hernia Prevention:** Exhale on the concentric (lifting) phase—no Valsalva maneuver. Spinal loading is minimized by prioritizing chest-supported back exercises and dumbbell variations over heavy barbell lifts. 
 - **Sexual Health:** Heavy emphasis on glutes, hamstrings, and hip hinge movements (like Hip Thrusts) for hip power and pelvic floor health. Mandatory Zone 2 cardio is included for cardiovascular and endothelial health.
 - **Synergy:** Workouts are structured to minimize overlap. Push days alternate between (Chest Press + Lateral Raise) and (Shoulder Press + Pec Fly). Pull days alternate Iliac/Upper Back with Thoracic/Kelso Shrugs.
+- **Personal Structural Assessment:** Fairly aesthetic frame overall. My proportions are actually closer to athletic aesthetic build, "men's physique" type frame, than to ultra-wide comic-book "classic physique" clavicle genetics.
+  - **Neck:** slightly on the **longer side**. It gives a more "model/athletic" silhouette rather than compact powerlifter proportions. Traps are not overpowering the neck, which accentuates this further.
+  - **Clavicles:** **medium** length, maybe *slightly short relative to muscularity*, but not genuinely "short clavicles." Shoulders don't look narrow. The issue is more that arm/chest mass dominates the frame, which can visually compress shoulder width. Getting leaner makes the structure actually looks broader.
+  - **Waist:** **narrow-to-medium**, not blocky. V-taper is strong when leaner. Obliques are not excessively wide and pelvis doesn't protrude visually.
+  - **Hips/pelvis:** **not** wide hips in the problematic sense. Pelvis is probably average male width. However decent leg/glute mass, relatively tight waist, and some posture issues tilt the pelvis forward slightly, which can create an illusion of more hip width from the front.
+  - Strengths:
+    - solid chest thickness
+    - relatively strong delts/arms
+    - relatively narrow midsection
+  - Weaknesses:
+    - softness / water retention / fat tissue around lower abdomen reduces taper
+    - bad posture issues often compresses my frame forward
+    - shoulder width isn't massively overpowering the arm size
+    - lats could flare a bit more
+  - Goals:
+    - better lower abs with less fat
+    - better posture and scapular positioning
+    - more lateral delt + upper lat emphasis
+    - slightly leaner (without shrinking)
 
 ---
 
