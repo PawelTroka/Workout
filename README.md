@@ -28,7 +28,7 @@
 
 ---
 
-### **Monday: Push (Upper Chest, Side Delts, Neck)**
+### **Monday: Push (Upper Chest, Width, Triceps, Neck)**
 *Focus: Upper chest shelf, shoulder width, and neck thickness.*
 *Synergy: Chest Press + Lateral Raise.*
 - **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 3 × 8-10 reps
