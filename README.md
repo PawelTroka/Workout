@@ -77,9 +77,9 @@
 
 ### **Saturday: Pull 2 (Upper Back, Biceps, Detail)**
 - **Upper Back**: T-Bar Kelso Shrug or Chest-Supported Dumbbell Row: 3 × 10-12 reps
-- **Lats (Stretch)**: One Arm Dumbbell Row: 3 × 10-12 reps/side
 *Focus: Back thickness, posture and arm details (bicep peaks).*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
+- **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side
 - **Rear Delts**: Reverse Pec Deck: 3 × 15-20 reps
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
