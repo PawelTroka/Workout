@@ -10,6 +10,7 @@
   - **Clavicles:** **medium** length, maybe *slightly short relative to muscularity*, but not genuinely "short clavicles." Shoulders don't look narrow. The issue is more that arm/chest mass dominates the frame, which can visually compress shoulder width. Getting leaner makes the structure actually looks broader.
   - **Waist:** **narrow-to-medium**, not blocky. V-taper is strong when leaner. Obliques are not excessively wide and pelvis doesn't protrude visually.
   - **Hips/pelvis:** **not** wide hips in the problematic sense. Pelvis is probably average male width. However decent leg/glute mass, relatively tight waist, and some posture issues tilt the pelvis forward slightly, which can create an illusion of more hip width from the front.
+  - **Injuries, past injuries, health problems:** 8mm x 8mm Hernia linea albea in the abdomen (fixed), 4cm wide width of the diastasis recti (linea alba separation), old injury (supposedly fixed) in the area of ​​the lower right part of the right shoulder blade (possibly trapezoid or deltoid or rhomboid muscle), occasional pain and problems with the right shoulder when lifting heavier weights (mostly mitigated), old injury (seems fixed) to the metatarsal of the right foot
   - Strengths:
     - solid chest thickness
     - relatively strong delts/arms
