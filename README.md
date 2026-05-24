@@ -32,7 +32,7 @@
 *Focus: Upper chest shelf, shoulder width, and neck thickness.*
 *Synergy: Chest Press + Lateral Raise.*
 - **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 3 × 8-10 reps
-- **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
+- (*Optional*) **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
 - **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light to avoid injury)
@@ -68,9 +68,9 @@
 *Focus: The "capped" 3D shoulder look and masculine neck.*
 *Synergy: Shoulder Press + Pec Fly.*
 - **Shoulders**: Machine Shoulder Press (Pronated grip): 3 × 8-10 reps
-- **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps (Stretch focus)
 - **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus): 3 × 12-15 reps
+- (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps
 - **Waist**: Stomach Vacuums: 3 × 30s holds
