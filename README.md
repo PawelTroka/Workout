@@ -68,8 +68,9 @@
 *Focus: The "capped" 3D shoulder look and masculine neck.*
 *Synergy: Shoulder Press + Pec Fly.*
 - **Shoulders**: Machine Shoulder Press (Pronated grip): 3 × 8-10 reps
+- **Upper Chest**: Seated Low-to-High Cable Fly (Cuffed) or Seated low-to-high Pec Deck Machine: 3 × 10-12 reps (Best upper pec fly)
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps (Stretch focus)
-- **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus): 3 × 12-15 reps
+- **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus) (Pairs with pushdowns for triceps synergy): 3 × 12-15 reps
 - (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps
