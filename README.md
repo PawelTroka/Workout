@@ -57,7 +57,7 @@
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
 *Focus: Sexual health (hip power), joint preservation, athletic posterior chain.*
-- **Glutes/Hips**: Hip Thrusts: 4 × 10-12 reps (Crucial for sexual health. Squeeze at top, coordinate pelvic floor/kegel contraction)
+- **Glutes/Hips**: Hip Thrusts: 4 × 10-12 reps (Crucial for sexual health. Squeeze at top, coordinate pelvic floor/kegel contraction; Pro-Tip: Maintain a strict chin tuck to tilt pelvis and fully isolate glutes)
 - **Hamstrings**: Seated Leg Curl: 4 × 12-15 reps
 - **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 3 × 15 reps
 - **Calves**: Single Leg Calf Press (on selectorized machine): 4 × 15-20 reps (Slow negative)
