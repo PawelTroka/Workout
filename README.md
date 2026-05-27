@@ -50,7 +50,7 @@
 - **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps
 - **Forearms (Wrist Flexion)**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 3 × 12-15 reps
-- **Core**: Decline Sit-ups or Hanging Leg Raises: 3 × 10-12 reps
+- **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on curling pelvis upward to correct anterior pelvic tilt and flatten lower stomach)*
 
 **Cardio:**
 - **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
