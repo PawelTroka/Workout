@@ -31,7 +31,7 @@
 ### **Monday: Push (Upper Chest, Width, Triceps, Neck)**
 *Focus: Upper chest shelf, shoulder width, and neck thickness.*
 *Synergy: Chest Press + Lateral Raise.*
-- **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 3 × 8-10 reps *(Shoulder Pro-Tip: Press in the scapular plane with elbows tucked at 30-45°)*
+- **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 3 × 8-10 reps *(Shoulder Pro-Tip: Press in scapular plane with elbows tucked at 30-45°; keep grip slightly wider than shoulder-width to prevent wrist strain)*
 - (*Optional*) **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
 - **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps *(Use wrist cuffs to maximize lateral delt isolation & V-taper; Pro-Tip: Set pulley at hip/wrist height to overload the lateral delt in the stretched position)*
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 3 × 12-15 reps
@@ -47,7 +47,7 @@
 *Synergy: Iliac lat exercise + upper back row.*
 - **Iliac Lats (Width)**: Neutral Shoulder-Width Weighted Pull-ups (or assisted): 3 × 8-10 reps *(Pro-Tip: Keep elbows tucked in front; targets lower iliac lats for maximum V-taper and spares right shoulder)*
 - **Upper/Mid Back**: Pronated Grip Chest-Supported Machine Row: 3 × 10-12 reps (Saves lower back)
-- **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps
+- **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps *(Pro-Tip: Stop 10° short of lockout at bottom and 90% at top to protect bicep tendon and keep constant tension)*
 - **Forearms (Wrist Flexion)**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 3 × 12-15 reps
 - **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on curling pelvis upward to correct anterior pelvic tilt and flatten lower stomach)*
@@ -59,7 +59,7 @@
 *Focus: Sexual health (hip power), joint preservation, athletic posterior chain.*
 - **Glutes/Hips**: Hip Thrusts: 4 × 10-12 reps (Crucial for sexual health. Squeeze at top, coordinate pelvic floor/kegel contraction; Pro-Tip: Maintain a strict chin tuck to tilt pelvis and fully isolate glutes)
 - **Hamstrings**: Seated Leg Curl: 4 × 12-15 reps
-- **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 3 × 15 reps
+- **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 3 × 15 reps *(Pro-Tip: Set pad 2" below hip crease to let pelvis pivot freely, keeping spine statically rounded)*
 - **Calves**: Single Leg Calf Press (on selectorized machine): 4 × 15-20 reps (Slow negative)
 - **Core**: Dead Bugs: 3 × 60s (Deep core stability, press lower back into floor, excellent for hernia prevention & diastasis recti)
 
@@ -81,7 +81,7 @@
 *Synergy: Shoulder Press + Pec Fly.*
 - **Shoulders**: Machine Shoulder Press (Pronated grip): 3 × 8-10 reps *(Shoulder Pro-Tip: If right shoulder triggers, swap to Seated Neutral-Grip DB Press)*
 - **Upper Chest**: Seated Low-to-High Cable Fly (Cuffed) or Seated low-to-high Pec Deck Machine: 3 × 10-12 reps (Best upper pec fly)
-- **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps (Stretch focus)
+- **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps *(Stretch focus; Pro-Tip: Keep hips locked/stationary in a flat tabletop; do not dynamically sink hips as weight goes overhead)*
 - **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus) (Pairs with pushdowns for triceps synergy): 3 × 12-15 reps
 - (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
@@ -94,7 +94,7 @@
 ### **Saturday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
 *Focus: Back thickness, posture and arm details (bicep peaks).*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
-- **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side
+- **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side *(Pro-Tip: Pull dumbbell back in a sweeping arc toward your hip pocket, keeping forearm vertical)*
 - **Traps/Upper Back**: Chest-Supported DB Kelso Shrug (30-45° Incline) or T-Bar Kelso Shrug: 3 × 10-12 reps *(Posture Pro-Tip: Focus on maximum scapular retraction to pull rounded shoulders back & open chest frame)*
 - **Rear Delts**: Reverse Pec Deck: 3 × 15-20 reps
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
