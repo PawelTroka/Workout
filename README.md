@@ -95,7 +95,7 @@
 *Focus: Back thickness, posture and arm details (bicep peaks).*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
 - **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side
-- **Traps/Upper Back**: T-Bar Kelso Shrug or Chest-Supported DB Kelso Shrug: 3 × 10-12 reps *(Posture Pro-Tip: Focus on maximum scapular retraction to pull rounded shoulders back & open chest frame)*
+- **Traps/Upper Back**: Chest-Supported DB Kelso Shrug (30-45° Incline) or T-Bar Kelso Shrug: 3 × 10-12 reps *(Posture Pro-Tip: Focus on maximum scapular retraction to pull rounded shoulders back & open chest frame)*
 - **Rear Delts**: Reverse Pec Deck: 3 × 15-20 reps
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
