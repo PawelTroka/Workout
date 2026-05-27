@@ -45,7 +45,7 @@
 ### **Tuesday: Pull (Iliac Lats, Upper Back, Biceps, Forearms)**
 *Focus: V-Taper width, bicep peaks, and forearm veins.*
 *Synergy: Iliac lat exercise + upper back row.*
-- **Iliac Lats (Width)**: Wide Grip Weighted Pull-ups (or assisted): 3 × 8-10 reps *(Shoulder Pro-Tip: Pull in the scapular plane; swap to Wide Neutral pulldowns if right shoulder pain triggers)*
+- **Iliac Lats (Width)**: Neutral Shoulder-Width Weighted Pull-ups (or assisted): 3 × 8-10 reps *(Pro-Tip: Keep elbows tucked in front; targets lower iliac lats for maximum V-taper and spares right shoulder)*
 - **Upper/Mid Back**: Pronated Grip Chest-Supported Machine Row: 3 × 10-12 reps (Saves lower back)
 - **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps
 - **Forearms (Wrist Flexion)**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
