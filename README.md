@@ -1,4 +1,4 @@
-# Ultimate Optimized Routine: Aesthetics, Longevity & Sexual Health
+# Ultimate Optimized Daily Activity & Training Routine: Aesthetics, Longevity & Sexual Health
 
 ## Core Philosophy:
 - **Looksmaxxing (Aesthetics):** Focuses heavily on the V-taper (broad shoulders/lats), an upper chest "shelf", a masculine neck, and thick forearms. **Zero direct oblique work** and stomach vacuums are included to keep the waist tight. Direct quad work is minimized to prevent a "blocky" lower half, focusing instead on an athletic posterior chain.
@@ -39,6 +39,9 @@
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction; TVA focus: keep stomach flat, prevent coning)
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
+**Cardio:**
+- **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
+
 ### **Tuesday: Pull (Iliac Lats, Upper Back, Biceps, Forearms)**
 *Focus: V-Taper width, bicep peaks, and forearm veins.*
 *Synergy: Iliac lat exercise + upper back row.*
@@ -49,6 +52,9 @@
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 3 × 12-15 reps
 - **Core**: Decline Sit-ups or Hanging Leg Raises: 3 × 10-12 reps
 
+**Cardio:**
+- **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
+
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
 *Focus: Sexual health (hip power), joint preservation, athletic posterior chain.*
 - **Glutes/Hips**: Hip Thrusts: 4 × 10-12 reps (Crucial for sexual health. Squeeze at top, coordinate pelvic floor/kegel contraction)
@@ -57,12 +63,18 @@
 - **Calves**: Single Leg Calf Press (on selectorized machine): 4 × 15-20 reps (Slow negative)
 - **Core**: Dead Bugs: 3 × 60s (Deep core stability, press lower back into floor, excellent for hernia prevention & diastasis recti)
 
+**Recovery:**
+- **Sauna**: 60 mins *(Post-workout recovery, cardiovascular health & skin health)*
+
+
+
 ### **Thursday: Active Recovery & Longevity**
 *Focus: Blood flow, skin health, mitochondrial health.*
-- **Cardio**: Zone 2 Cardio (Incline walk, cycling, or elliptical): 45-60 mins (Nasal breathing only)
-- **Recovery**: Sauna: 20 mins
 - **Prehab**: Face Pulls: 3 × 15-20 reps (Rotator cuff health & posture; pull with hands high at peak for external rotation)
 - **Mobility**: Full body static stretching and Thoracic spine extensions (Foam roller)
+
+**Cardio:**
+- **Zone 2**: 45-60 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster; nasal breathing only)*
 
 ### **Friday: Push 2 (Shoulders, Upper Chest, Neck)**
 *Focus: The "capped" 3D shoulder look and masculine neck.*
@@ -75,6 +87,9 @@
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps
 - **Waist**: Stomach Vacuums: 3 × 30s holds
+
+**Cardio:**
+- **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
 
 ### **Saturday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
 *Focus: Back thickness, posture and arm details (bicep peaks).*
