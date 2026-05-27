@@ -33,7 +33,7 @@
 *Synergy: Chest Press + Lateral Raise.*
 - **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 3 × 8-10 reps *(Shoulder Pro-Tip: Press in the scapular plane with elbows tucked at 30-45°)*
 - (*Optional*) **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
-- **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps *(Use wrist cuffs to maximize lateral delt isolation & V-taper)*
+- **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps *(Use wrist cuffs to maximize lateral delt isolation & V-taper; Pro-Tip: Set pulley at hip/wrist height to overload the lateral delt in the stretched position)*
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light to avoid injury)
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction; TVA focus: keep stomach flat, prevent coning)
