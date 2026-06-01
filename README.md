@@ -54,8 +54,11 @@
 ---
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
-*Focus: Sexual health (hip power), joint preservation, athletic posterior chain.*
+*Focus: Sexual health (hip power), joint preservation, athletic posterior chain, healthy back.*
 - **Glutes/Hips**: Hip Thrusts: 4 × 10-12 reps (Crucial for sexual health. Squeeze at top, coordinate pelvic floor/kegel contraction; Pro-Tip: Maintain a strict chin tuck to tilt pelvis and fully isolate glutes)
+- **Hamstrings/Glutes**: Stiff-Legged Deadlift (SLDL) with Dumbbells: 3 × 10-12 reps (Safer than barbell for spinal loading)
+- **Longevity Quads**: Bulgarian Split Squats: 2 series × 10-12 reps *(Pro-Tip: Statically lock torso; provides joint longevity and quad stimulation without adding blocky width)*
+- **Glutes**: Glute Kickbacks (Cable or Machine): 3 × 15 reps/leg
 - **Hamstrings**: Seated Leg Curl: 4 × 12-15 reps
 - **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 3 × 15 reps *(Pro-Tip: Set pad 2" below hip crease to let pelvis pivot freely, keeping spine statically rounded)*
 - **Calves**: Single Leg Calf Press (on selectorized machine): 4 × 15-20 reps (Slow negative)
@@ -102,13 +105,6 @@
 **Cardio:**
 - **Zone 2**: 60 mins *(Running near the beach, swimming in the ocean, cycling near the beach, or running in the forest)*
 
-### **Sunday: Legs 2 (Posterior Chain & Recovery)**
-*Focus: Healthy back, glutes, zero direct quad work to maintain proportions.*
-- **Hamstrings/Glutes**: Stiff-Legged Deadlift (SLDL) with Dumbbells: 3 × 10-12 reps (Safer than barbell for spinal loading)
-- **Glutes**: Glute Kickbacks (Cable or Machine): 3 × 15 reps/leg
-- **Hamstrings**: Leg Curl: 3 × 12-15 reps
-- **Calves**: Calf Raises: 4 × 15-20 reps
-- **Core**: Weighted Planks: 3 × 60s *(Squeeze glutes & TVA tight, stop if abdominal coning occurs)*
 
 **HIIT:**
 - **Sprints**: 300m-400m sprints for 20-30 mins *(4-6 series, with 2-3 mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
