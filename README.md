@@ -51,8 +51,7 @@
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 3 × 12-15 reps
 - **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on curling pelvis upward to correct anterior pelvic tilt and flatten lower stomach)*
 
-**Cardio:**
-- **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
+---
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
 *Focus: Sexual health (hip power), joint preservation, athletic posterior chain.*
