@@ -110,6 +110,7 @@
 
 ### **Sunday: Weekend Sprints & Social Sports**
 *Focus: High Growth Hormone, visceral fat melting, and social play on 100% fresh legs.*
+
 **HIIT:**
 - **Sprints**: 300m-400m sprints for 20-30 mins *(4-6 series, with 2-3 mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
 
