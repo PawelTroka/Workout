@@ -77,7 +77,7 @@
 - **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus) (Pairs with pushdowns for triceps synergy): 3 × 12-15 reps
 - (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
-- **Core**: Standing Cable Crunches: 3 × 15-20 reps
+- **Core**: Reverse Crunches: 3 × 12-15 reps
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
 ---
