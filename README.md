@@ -39,8 +39,7 @@
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction; TVA focus: keep stomach flat, prevent coning)
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
-**Cardio:**
-- **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
+---
 
 ### **Tuesday: Pull (Iliac Lats, Upper Back, Biceps, Forearms)**
 *Focus: V-Taper width, bicep peaks, and forearm veins.*
