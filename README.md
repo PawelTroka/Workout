@@ -67,6 +67,7 @@
 **Recovery:**
 - **Sauna**: 60 mins *(Post-workout recovery, cardiovascular health & skin health)*
 
+---
 
 
 ### **Thursday: Active Recovery & Longevity**
@@ -91,6 +92,7 @@
 
 **Cardio:**
 - **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
+---
 
 ### **Saturday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
 *Focus: Back thickness, posture and arm details (bicep peaks).*
@@ -101,10 +103,12 @@
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
 - **Core**: Hanging Leg Raises: 3 × 10-12 reps (Control the swing)
+---
 
 **Cardio:**
 - **Zone 2**: 60 mins *(Running near the beach, swimming in the ocean, cycling near the beach, or running in the forest)*
 
+---
 
 ### **Sunday: Weekend Sprints & Social Sports**
 *Focus: High Growth Hormone, visceral fat melting, and social play on 100% fresh legs.*
