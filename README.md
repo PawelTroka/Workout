@@ -90,8 +90,6 @@
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
-**Cardio:**
-- **Zone 2**: 20 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster)*
 ---
 
 ### **Saturday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
