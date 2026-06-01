@@ -82,8 +82,8 @@
 
 ---
 
-### **Saturday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
-*Focus: Back thickness, posture and arm details (bicep peaks).*
+### **Friday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
+*Focus: Back thickness, posture, bicep peaks, and rotator cuff prehab.*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
 - **Thoracic Lats**: One Arm Dumbbell Row: 3 × 10-12 reps/side *(Pro-Tip: Pull dumbbell back in a sweeping arc toward your hip pocket, keeping forearm vertical)*
 - **Traps/Upper Back**: Chest-Supported DB Kelso Shrug (30-45° Incline) or T-Bar Kelso Shrug: 3 × 10-12 reps *(Posture Pro-Tip: Focus on maximum scapular retraction to pull rounded shoulders back & open chest frame)*
@@ -91,8 +91,13 @@
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
 - **Core**: Hanging Leg Raises: 3 × 10-12 reps (Control the swing)
+- **Prehab**: Face Pulls: 3 × 15-20 reps (Rotator cuff health & posture; pull with hands high at peak for external rotation)
+- **Mobility**: Full body static stretching and Thoracic spine extensions (Foam roller)
+
 ---
 
+### **Saturday: Weekend Active Recovery & Outdoor Cardio**
+*Focus: Nature conditioning, joint lubrication, and lung capacity. (No Gym Lifts).*
 **Cardio:**
 - **Zone 2**: 60 mins *(Running near the beach, swimming in the ocean, cycling near the beach, or running in the forest)*
 
