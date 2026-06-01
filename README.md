@@ -69,18 +69,8 @@
 
 ---
 
-
-### **Thursday: Active Recovery & Longevity**
-*Focus: Blood flow, skin health, mitochondrial health.*
-- **Prehab**: Face Pulls: 3 × 15-20 reps (Rotator cuff health & posture; pull with hands high at peak for external rotation)
-- **Mobility**: Full body static stretching and Thoracic spine extensions (Foam roller)
-
-**Cardio:**
-- **Zone 2**: 45-60 mins *(Incline Treadmill Walk, Stationary Cycling, Elliptical, or light Stairmaster; nasal breathing only)*
-
-### **Friday: Push 2 (Shoulders, Upper Chest, Neck)**
-*Focus: The "capped" 3D shoulder look and masculine neck.*
-*Synergy: Shoulder Press + Pec Fly.*
+### **Thursday: Push 2 (Shoulders, Upper Chest, Neck)**
+*Focus: The "capped" 3D shoulder look, upper chest shelf, and masculine neck.*
 - **Shoulders**: Machine Shoulder Press (Pronated grip): 3 × 8-10 reps *(Shoulder Pro-Tip: If right shoulder triggers, swap to Seated Neutral-Grip DB Press)*
 - **Upper Chest**: Seated Low-to-High Cable Fly (Cuffed) or Seated low-to-high Pec Deck Machine: 3 × 10-12 reps (Best upper pec fly)
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps *(Stretch focus; Pro-Tip: Keep hips locked/stationary in a flat tabletop; do not dynamically sink hips as weight goes overhead)*
