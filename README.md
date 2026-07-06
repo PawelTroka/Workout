@@ -91,8 +91,8 @@
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 3 × 10-12 reps
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 3 × 12-15 reps
 - **Prehab**: Face Pulls: 3 × 15-20 reps (Rotator cuff health & posture; pull with hands high at peak for external rotation)
-- **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on curling pelvis upward to correct anterior pelvic tilt and flatten lower stomach)*
 - **Mobility**: Couch Stretch (2 mins/leg for hip flexor release/pelvic tilt correction), static stretching, and Thoracic spine extensions (Foam roller)
+- **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
 
 ---
 
