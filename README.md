@@ -75,9 +75,9 @@
 - **Upper Chest**: Seated Low-to-High Cable Fly (Cuffed) or Seated low-to-high Pec Deck Machine: 3 × 10-12 reps (Best upper pec fly)
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps *(Stretch focus; Pro-Tip: Keep hips locked/stationary in a flat tabletop; do not dynamically sink hips as weight goes overhead)*
 - **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus) (Pairs with pushdowns for triceps synergy): 3 × 12-15 reps
-- **Core**: Reverse Crunches: 3 × 12-15 reps
 - (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps *(Mandatory for V-taper; Pro-Tip: pulley at wrist/hip height to overload stretched position)*
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
+- **Core**: Reverse Crunches: 3 × 12-15 reps *(Pro-Tip: Keep lower back flat; draw in TVA; stop if coning occurs; alternative: Dead Bugs)*
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
 ---
