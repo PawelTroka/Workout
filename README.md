@@ -65,7 +65,7 @@
 - **Core**: Dead Bugs: 3 × 60s (Deep core stability, press lower back into floor, excellent for hernia prevention & diastasis recti)
 
 **Recovery:**
-- **Sauna**: 60 mins *(Post-workout recovery, cardiovascular health & skin health)*
+- **Sauna**: 60 mins *(Post-workout recovery, cardiovascular health & skin health, hydrate with electrolytes)*
 
 ---
 
