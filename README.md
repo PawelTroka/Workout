@@ -49,7 +49,7 @@
 - **Biceps**: EZ Bar Preacher Curl (Lengthened bias): 3 × 10-12 reps *(Pro-Tip: Stop 10° short of lockout at bottom and 90% at top to protect bicep tendon and keep constant tension)*
 - **Forearms (Wrist Flexion)**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 3 × 12-15 reps
-- **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on curling pelvis upward to correct anterior pelvic tilt and flatten lower stomach)*
+- **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
 
 ---
 
