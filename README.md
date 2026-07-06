@@ -107,7 +107,9 @@
 *Focus: High Growth Hormone, visceral fat melting, and social play on 100% fresh legs.*
 
 **HIIT:**
-- **Sprints**: 300m-400m sprints for 20-30 mins *(4-6 series, with 2-3 mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
+- **Sprints**: 200m-300m for 20 mins *(2-3 series, with 2-3 mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
+- OR
+- **Incline Hill Sprints**: 4-6 rounds of 8-10s *(Max effort uphill with 1.5-2 mins rest; safe for hamstrings/joints; maximizes Growth Hormone, pelvic blood flow, and visceral fat melt)*
 
 **Cardio:**
 - **Joker**: A random sport used for conditioning and socializing *(Climbing Gym, Squash, Padel, Obstacle Racing, Badminton, Tennis, Golf, Rugby, Volleyball, Basketball, Swimming, Football/Soccer, BJJ, Skiing/Snowboarding, Kayaking, Hiking, or Dancing)*
