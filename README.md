@@ -35,8 +35,8 @@
 - (*Optional*) **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
 - **Side Delts**: Cable Lateral Raises (Behind the back): 4 × 12-15 reps *(Use wrist cuffs to maximize lateral delt isolation & V-taper; Pro-Tip: Set pulley at hip/wrist height to overload the lateral delt in the stretched position)*
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 3 × 12-15 reps
-- **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light to avoid injury)
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction; TVA focus: keep stomach flat, prevent coning)
+- **Neck**: Band Curls & Extensions Superset: 3 × 12-15 reps each *(Superset curls and extensions to ensure symmetrical neck thickness & prevent strain)*
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
 ---
@@ -76,8 +76,8 @@
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 3 × 10-12 reps *(Stretch focus; Pro-Tip: Keep hips locked/stationary in a flat tabletop; do not dynamically sink hips as weight goes overhead)*
 - **Triceps**: Overhead Cable Extension or Dumbbell Pullover (Tricep focus) (Pairs with pushdowns for triceps synergy): 3 × 12-15 reps
 - (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps
-- **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
 - **Core**: Reverse Crunches: 3 × 12-15 reps
+- **Neck**: Band Curls & Extensions Superset: 3 × 12-15 reps each *(Superset curls and extensions to ensure symmetrical neck thickness)*
 - **Waist**: Stomach Vacuums: 3 × 30s holds
 
 ---
