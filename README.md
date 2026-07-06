@@ -38,6 +38,7 @@
 - **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light to avoid injury)
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction; TVA focus: draw in, keep stomach flat, prevent coning, stop if midline ridge forms)
 - **Waist**: Stomach Vacuums: 3 × 30s holds
+- **Post-Workout Zone 2 Cardio**: StairMaster: 20 mins *(Easy Zone 2 / talk-test pace; keep steps controlled, avoid pushing through the toes, and do not turn it into a glute/calf burner. Best StairMaster slot because it follows an upper-body push day and is far enough from Wednesday legs plus weekend sprints.)*
 
 ---
 
@@ -50,6 +51,7 @@
 - **Forearms (Wrist Flexion)**: Single Arm Dumbbell Wrist Curls off a bench: 3 × 15-20 reps
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 3 × 12-15 reps
 - **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
+- **Post-Workout Zone 2 Cardio**: Stationary Bike: 20 mins *(Low-to-moderate resistance, smooth cadence, relaxed grip. Best here because it avoids extra shoulder/grip demand after pull day and limits leg fatigue before Wednesday legs.)*
 
 ---
 
@@ -79,6 +81,7 @@
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
 - **Core**: Reverse Crunches: 3 × 12-15 reps *(Pro-Tip: Keep lower back flat; draw in TVA; stop if coning occurs; alternative: Dead Bugs)*
 - **Waist**: Stomach Vacuums: 3 × 30s holds
+- **Post-Workout Zone 2 Cardio**: Elliptical: 20 mins *(Smooth, low-impact pace; use light/no arm drive if the right shoulder feels irritated. Best here because it raises heart rate the day after legs without much eccentric loading.)*
 
 ---
 
@@ -93,6 +96,7 @@
 - **Prehab**: Face Pulls: 3 × 15-20 reps (Rotator cuff health & posture; pull with hands high at peak for external rotation)
 - **Mobility**: Couch Stretch (2 mins/leg for hip flexor release/pelvic tilt correction), static stretching, and Thoracic spine extensions (Foam roller)
 - **Core**: Hanging Knee Raises: 3 × 10-12 reps *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
+- **Post-Workout Zone 2 Cardio**: Uphill Treadmill Walk: 20 mins *(Easy incline walk at talk-test pace; no jogging and no calf burn. Best remaining slot because it keeps all four weekday modalities unique while staying lower impact than StairMaster before Saturday Zone 2 plus Sunday hill sprints/sports.)*
 
 ---
 
