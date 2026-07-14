@@ -37,7 +37,7 @@
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 3 × 12-15 reps
 - **Neck**: Resistance Band Neck Curls: 3 × 15-20 reps (Start light to avoid injury)
 - **Core**: Standing Cable Crunches: 3 × 15-20 reps (Exhale fully on contraction; TVA focus: draw in, keep stomach flat, prevent coning, stop if midline ridge forms)
-- **Waist**: Stomach Vacuums: 3 × 30s holds
+- **Waist**: Stomach Vacuums: 3 × 45s holds
 - **Post-Workout Zone 2 Cardio**: StairMaster: 20 mins *(Easy Zone 2 / talk-test pace; keep steps controlled, avoid pushing through the toes, and do not turn it into a glute/calf burner. Best StairMaster slot because it follows an upper-body push day and is far enough from Wednesday legs plus weekend sprints.)*
 
 ---
@@ -61,7 +61,6 @@
 - **Hamstrings/Glutes**: Stiff-Legged Deadlift (SLDL) with Dumbbells: 3 × 10-12 reps (Safer than barbell for spinal loading)
 - **Longevity Quads**: Bulgarian Split Squats: 2 series × 10-12 reps *(Pro-Tip: Statically lock torso; provides joint longevity and quad stimulation without adding blocky width)*
 - **Glutes**: Glute Kickbacks (Cable or Machine): 3 × 15 reps/leg
-- **Hamstrings**: Seated Leg Curl: 4 × 12-15 reps
 - **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 3 × 15 reps *(Pro-Tip: Set pad 2" below hip crease to let pelvis pivot freely, keeping spine statically rounded)*
 - **Calves**: Single Leg Calf Press (on selectorized machine): 4 × 15-20 reps (Slow negative)
 - **Core**: Dead Bugs: 3 × 60s (Deep core stability, press lower back into floor, excellent for hernia prevention & diastasis recti)
@@ -80,7 +79,7 @@
 - (*Optional*) **Side Delts**: Cable Lateral Raises: 3 × 12-15 reps *(Mandatory for V-taper; Pro-Tip: pulley at wrist/hip height to overload stretched position)*
 - **Neck**: Resistance Band Neck Extensions: 3 × 15-20 reps
 - **Core**: Reverse Crunches: 3 × 12-15 reps *(Pro-Tip: Keep lower back flat; draw in TVA; stop if coning occurs; alternative: Dead Bugs)*
-- **Waist**: Stomach Vacuums: 3 × 30s holds
+- **Waist**: Stomach Vacuums: 3 × 45s holds
 - **Post-Workout Zone 2 Cardio**: Elliptical: 20 mins *(Smooth, low-impact pace; use light/no arm drive if the right shoulder feels irritated. Best here because it raises heart rate the day after legs without much eccentric loading.)*
 
 ---
