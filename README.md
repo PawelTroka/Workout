@@ -38,7 +38,7 @@
 - **Neck**: Resistance Band Neck Curls: 20 × 2.5kg, 18 × 3.75kg, 15 × 5kg (Start light to avoid injury)
 - **Core**: Standing Cable Crunches: 20 × 20kg, 18 × 25kg, 16 × 30kg (Exhale fully on contraction; TVA focus: draw in, keep stomach flat, prevent coning, stop if midline ridge forms)
 - **Waist**: Stomach Vacuums: 3x 60s
-- **Post-Workout Zone 2 Cardio**: StairMaster: 20 mins at level 6/20 *(Easy Zone 2 / talk-test pace; keep steps controlled, avoid pushing through the toes, and do not turn it into a glute/calf burner. Best StairMaster slot because it follows an upper-body push day and is far enough from Wednesday legs plus weekend sprints.)*
+- **Post-Workout Zone 2 Cardio**: StairMaster: 20mins at level 6/20 *(Easy Zone 2 / talk-test pace; keep steps controlled, avoid pushing through the toes, and do not turn it into a glute/calf burner. Best StairMaster slot because it follows an upper-body push day and is far enough from Wednesday legs plus weekend sprints.)*
 
 ---
 
@@ -51,7 +51,7 @@
 - **Forearms (Wrist Flexion)**: Single Arm Dumbbell Wrist Curls off a bench: 20 × 7.5kg, 18 × 10kg, 15 × 12.5kg
 - **Forearms (Brachioradialis)**: Cuffed Single Arm Top Half Reverse Curl: 15 × 10kg, 13 × 12.5kg, 12 × 15kg
 - **Core**: Hanging Knee Raises: 20 × 4kg, 18 × 6kg, 16 × 8kg *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
-- **Post-Workout Zone 2 Cardio**: Stationary Bike: 20 mins at level 10/20 *(Low-to-moderate resistance, smooth cadence, relaxed grip. Best here because it avoids extra shoulder/grip demand after pull day and limits leg fatigue before Wednesday legs.)*
+- **Post-Workout Zone 2 Cardio**: Stationary Bike: 20mins at level 10/20 *(Low-to-moderate resistance, smooth cadence, relaxed grip. Best here because it avoids extra shoulder/grip demand after pull day and limits leg fatigue before Wednesday legs.)*
 
 ---
 
@@ -66,7 +66,7 @@
 - **Core**: Dead Bugs: 3x 60s (Deep core stability, press lower back into floor, excellent for hernia prevention & diastasis recti)
 
 **Recovery:**
-- **Sauna**: 60 mins *(Post-workout recovery, cardiovascular health & skin health, hydrate with electrolytes)*
+- **Sauna**: 60mins *(Post-workout recovery, cardiovascular health & skin health, hydrate with electrolytes)*
 
 ---
 
@@ -80,7 +80,7 @@
 - **Neck**: Resistance Band Neck Extensions: 20 × 2.5kg, 18 × 3.75kg, 16 × 5kg
 - **Core**: Reverse Crunches: 30 reps, 25 reps, 20 reps *(Pro-Tip: Keep lower back flat; draw in TVA; stop if coning occurs; alternative: Dead Bugs)*
 - **Waist**: Stomach Vacuums: 3x 60s
-- **Post-Workout Zone 2 Cardio**: Elliptical: 20 mins at level 10/25 *(Smooth, low-impact pace; use light/no arm drive if the right shoulder feels irritated. Best here because it raises heart rate the day after legs without much eccentric loading.)*
+- **Post-Workout Zone 2 Cardio**: Elliptical: 20mins at level 10/25 *(Smooth, low-impact pace; use light/no arm drive if the right shoulder feels irritated. Best here because it raises heart rate the day after legs without much eccentric loading.)*
 
 ---
 
@@ -95,14 +95,14 @@
 - **Prehab**: Face Pulls: 20 × 12.5kg, 16 × 15kg, 15 × 17.5kg (Rotator cuff health & posture; pull with hands high at peak for external rotation)
 - **Mobility**: Thoracic spine extensions: 3 × 60s; Couch Stretch: 1 min/leg; static stretching: 30s/leg
 - **Core**: Hanging Knee Raises: 20 × 4kg, 18 × 6kg, 16 × 8kg *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
-- **Post-Workout Zone 2 Cardio**: Uphill Treadmill Walk: 20 mins at 20% incline and 4.5 km/h *(Easy incline walk at talk-test pace; no jogging and no calf burn. Best remaining slot because it keeps all four weekday modalities unique while staying lower impact than StairMaster before Saturday Zone 2 plus Sunday hill sprints/sports.)*
+- **Post-Workout Zone 2 Cardio**: Uphill Treadmill Walk: 20mins at 20% incline and 4.5 km/h *(Easy incline walk at talk-test pace; no jogging and no calf burn. Best remaining slot because it keeps all four weekday modalities unique while staying lower impact than StairMaster before Saturday Zone 2 plus Sunday hill sprints/sports.)*
 
 ---
 
 ### **Saturday: Weekend Active Recovery & Outdoor Cardio**
 *Focus: Nature conditioning, joint lubrication, and lung capacity. (No Gym Lifts).*
 **Cardio:**
-- **Zone 2**: 60 mins *(Running near the beach, swimming in the ocean, cycling near the beach, or running in the forest)*
+- **Zone 2**: 60mins *(Running near the beach, swimming in the ocean, cycling near the beach, or running in the forest)*
 
 ---
 
@@ -110,9 +110,9 @@
 *Focus: High Growth Hormone, visceral fat melting, and social play on 100% fresh legs.*
 
 **HIIT:**
-- **Sprints**: 200m-300m for 20 mins *(2-3 series, with 2-3 mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
+- **Sprints**: 200m-300m for 20mins *(2-3 series, with 2-3mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
 - OR
-- **Incline Hill Sprints**: 4-6 rounds of 8-10s *(Max effort uphill with 1.5-2 mins rest; safe for hamstrings/joints; maximizes Growth Hormone, pelvic blood flow, and visceral fat melt)*
+- **Incline Hill Sprints**: 4-6 rounds of 8-10s *(Max effort uphill with 1.5-2mins rest; safe for hamstrings/joints; maximizes Growth Hormone, pelvic blood flow, and visceral fat melt)*
 
 **Cardio:**
 - **Joker**: A random sport used for conditioning and socializing *(Climbing Gym, Squash, Padel, Obstacle Racing, Badminton, Tennis, Golf, Rugby, Volleyball, Basketball, Swimming, Football/Soccer, BJJ, Skiing/Snowboarding, Kayaking, Hiking, or Dancing)*
