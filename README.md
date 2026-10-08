@@ -32,7 +32,7 @@
 *Focus: Upper chest shelf, shoulder width, and neck thickness.*
 *Synergy: Chest Press + Lateral Raise.*
 - **Upper Chest**: Reverse Grip Smith Machine Press (or Tucked Elbow Incline Press): 10 × 60kg, 9 × 65kg, 8 × 70kg *(Shoulder Pro-Tip: Press in scapular plane with elbows tucked at 30-45°; keep grip slightly wider than shoulder-width to prevent wrist strain)*
-- (*Optional*) **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 3 × 10-12 reps
+- **Chest Isolation**: Pec Deck Machine (Seated low-to-high if possible): 12 × 24kg, 11 × 29kg, 10 × 34kg
 - **Side Delts**: Cable Lateral Raises (Behind the back): 15 × 7.5kg, 13 × 10kg, 12 × 12.5kg *(Use wrist cuffs to maximize lateral delt isolation & V-taper; Pro-Tip: Set pulley at hip/wrist height to overload the lateral delt in the stretched position)*
 - **Triceps**: Single Arm Cuff Pushdown (or V-bar): 15 × 15kg, 13 × 17.5kg, 12 × 20kg
 - **Neck**: Resistance Band Neck Curls: 20 × 2.5kg, 18 × 3.75kg, 15 × 5kg (Start light to avoid injury)
@@ -56,9 +56,9 @@
 ---
 
 ### **Wednesday: Legs (Glute/Hamstring Dominant)**
-*Focus: Sexual health (hip power), joint preservation, athletic posterior chain, healthy back.*
-- **Glutes/Hips**: Hip Thrusts: 12 × 60kg, 12 × 70kg, 11 × 80kg, 10 × 90kg (Crucial for sexual health. Squeeze at top, coordinate pelvic floor/kegel contraction; Pro-Tip: Maintain a strict chin tuck to tilt pelvis and fully isolate glutes)
-- **Hamstrings/Glutes**: Stiff-Legged Deadlift (SLDL) with Dumbbells: 12 × 22.5kg, 11 × 25kg, 10 × 27.5kg (Safer than barbell for spinal loading)
+*Focus: Hip strength and control, an athletic posterior chain, and physical function.*
+- **Glutes/Hips**: Hip Thrusts: 12 × 60kg, 12 × 70kg, 11 × 80kg, 10 × 90kg (Glute strength and hip-extension control. Squeeze at top, coordinate pelvic floor/kegel contraction; Pro-Tip: Maintain a strict chin tuck to tilt pelvis and fully isolate glutes)
+- **Hamstrings/Glutes**: Stiff-Legged Deadlift (SLDL) with Dumbbells: 12 × 25kg, 11 × 27.5kg, 10 × 30kg (Safer than barbell for spinal loading)
 - **Quads**: Bulgarian Split Squats: 12 × 10kg, 10 × 12.5kg *(Pro-Tip: Statically lock torso; provides joint longevity and quad stimulation without adding blocky width)*
 - **Glutes**: Glute Kickbacks (Cable or Machine): 15 × 10kg, 15 × 12.5kg, 15 × 15kg per leg
 - **Posterior Chain**: 45° Back Extensions (Rounded back, glute squeeze): 15 × 5kg, 15 × 10kg, 15 × 15kg *(Pro-Tip: Set pad 2" below hip crease to let pelvis pivot freely, keeping spine statically rounded)*
@@ -72,7 +72,7 @@
 
 ### **Thursday: Push 2 (Shoulders, Upper Chest, Neck)**
 *Focus: The "capped" 3D shoulder look, upper chest shelf, and masculine neck.*
-- **Shoulders**: Machine Shoulder Press (Pronated grip): 10 × 46kg, 9 × 50kg, 8 × 55kg *(Shoulder Pro-Tip: If right shoulder triggers, swap to Seated Neutral-Grip DB Press)*
+- **Shoulders**: Machine Shoulder Press (Pronated grip): 10 × 50kg, 9 × 55kg, 8 × 59kg *(Shoulder Pro-Tip: If right shoulder triggers, swap to Seated Neutral-Grip DB Press)*
 - **Upper Chest**: Seated Low-to-High Cable Fly (Cuffed) or Seated low-to-high Pec Deck Machine: 12 × 12.5kg, 11 × 15kg, 10 × 17.5kg (Best upper pec fly)
 - **Upper Chest/Ribs**: Dumbbell Pullover (Cross-bench): 12 × 20kg, 11 × 22.5kg, 10 × 25kg *(Stretch focus; Pro-Tip: Keep hips locked/stationary in a flat tabletop; do not dynamically sink hips as weight goes overhead)*
 - **Triceps**: Overhead Cable Extension (Pairs with pushdowns for triceps synergy): 15 × 15kg, 14 × 17.5kg, 12 × 20kg
@@ -87,15 +87,15 @@
 ### **Friday: Pull 2 (Thoracic Lats, Traps, Mid-Bicep)**
 *Focus: Back thickness, posture, bicep peaks, and rotator cuff prehab.*
 *Synergy: Thoracic lat + upper back/Kelso shrug.*
-- **Thoracic Lats**: One Arm Dumbbell Row: 12 × 22.5kg, 11 × 25kg, 10 × 27.5kg per side *(Pro-Tip: Pull dumbbell back in a sweeping arc toward your hip pocket, keeping forearm vertical)*
+- **Thoracic Lats**: One Arm Dumbbell Row: 12 × 25kg, 11 × 27.5kg, 10 × 30kg per side *(Pro-Tip: Pull dumbbell back in a sweeping arc toward your hip pocket, keeping forearm vertical)*
 - **Traps/Upper Back**: Chest-Supported DB Kelso Shrug (30-45° Incline) or T-Bar Kelso Shrug: 12 × 22.5kg, 11 × 25kg, 10 × 27.5kg *(Posture Pro-Tip: Focus on maximum scapular retraction to pull rounded shoulders back & open chest frame)*
 - **Rear Delts**: Reverse Pec Deck: 20 × 23kg, 18 × 27kg, 15 × 32kg
 - **Biceps (Mid-range)**: Seated Dumbbell Curls (S-Tier): 12 × 10kg, 11 × 12.5kg, 10 × 15kg
 - **Forearms**: Cable Reverse Curl or Dumbbell Reverse Curl or Hammer Curls: 15 × 10kg, 14 × 12.5kg, 12 × 15kg
 - **Prehab**: Face Pulls: 20 × 12.5kg, 16 × 15kg, 15 × 17.5kg (Rotator cuff health & posture; pull with hands high at peak for external rotation)
-- **Mobility**: Thoracic spine extensions: 3 × 60s; Couch Stretch: 1 min/leg; static stretching: 30s/leg
+- **Mobility**: Thoracic spine extensions: 3 × 60s; Couch Stretch: 1min/leg; static stretching: 30s/leg
 - **Core**: Hanging Knee Raises: 20 × 4kg, 18 × 6kg, 16 × 8kg *(Pro-Tip: Focus on posterior pelvic tilt and curling pelvis upward; draw in TVA; stop if coning/doming occurs; alternative: Dead Bugs)*
-- **Post-Workout Zone 2 Cardio**: Uphill Treadmill Walk: 20mins at 20% incline and 4.5 km/h *(Easy incline walk at talk-test pace; no jogging and no calf burn. Best remaining slot because it keeps all four weekday modalities unique while staying lower impact than StairMaster before Saturday Zone 2 plus Sunday hill sprints/sports.)*
+- **Post-Workout Zone 2 Cardio**: Uphill Treadmill Walk: 20mins at 20% incline and 4.5km/h *(Easy incline walk at talk-test pace; no jogging and no calf burn. Best remaining slot because it keeps all four weekday modalities unique while staying lower impact than StairMaster before Saturday Zone 2 plus Sunday hill sprints/sports.)*
 
 ---
 
@@ -110,9 +110,9 @@
 *Focus: High Growth Hormone, visceral fat melting, and social play on 100% fresh legs.*
 
 **HIIT:**
-- **Sprints**: 200m-300m for 20mins *(2-3 series, with 2-3mins walking rest between sprints to maximize Growth Hormone, rapid pelvic blood flow, and posterior chain fat-burning)*
+- **Sprints**: 200m-300m for 20mins *(2-3 series, with 2-3mins walking rest between sprints)*
 - OR
-- **Incline Hill Sprints**: 4-6 rounds of 8-10s *(Max effort uphill with 1.5-2mins rest; safe for hamstrings/joints; maximizes Growth Hormone, pelvic blood flow, and visceral fat melt)*
+- **Incline Hill Sprints**: 4-6 rounds of 8-10s *(Max effort uphill with 1.5-2mins rest)*
 
 **Cardio:**
 - **Joker**: A random sport used for conditioning and socializing *(Climbing Gym, Squash, Padel, Obstacle Racing, Badminton, Tennis, Golf, Rugby, Volleyball, Basketball, Swimming, Football/Soccer, BJJ, Skiing/Snowboarding, Kayaking, Hiking, or Dancing)*
