@@ -116,3 +116,96 @@
 
 **Cardio:**
 - **Joker**: A random sport used for conditioning and socializing *(Climbing Gym, Squash, Padel, Obstacle Racing, Badminton, Tennis, Golf, Rugby, Volleyball, Basketball, Swimming, Football/Soccer, BJJ, Skiing/Snowboarding, Kayaking, Hiking, or Dancing)*
+
+---
+
+## Weekly Mobility & Stretching Schedule
+
+*Daily home routine: 10–15 minutes.*
+
+**Goals:**
+- Improve posture and reduce slouching.
+- Improve upper-back and shoulder mobility.
+- Reduce stiffness associated with desk work.
+- Improve hip, ankle, and general flexibility.
+- Support recovery alongside five weekly gym sessions.
+
+**Equipment:** Yoga mat, foam roller, resistance bands, and a wall.
+
+### Monday – Upper Back & Posture
+
+1. Cat-cow — 10 reps
+2. Thoracic extensions (foam roller) — 10 reps
+3. Open books — 8 reps per side
+4. Wall angels — 2 × 10 reps
+5. Resistance band rows — 2 × 12 reps
+
+### Tuesday – Hips & Lower Body
+
+1. 90/90 hip switches — 10 reps
+2. Half-kneeling hip flexor stretch — 30 sec per side
+3. Figure-four glute stretch — 30 sec per side
+4. Knee-to-wall ankle mobility — 10 reps per side
+5. Hamstring stretch — 30 sec per side
+
+### Wednesday – Spine & General Mobility
+
+1. Cat-cow — 10 reps
+2. Thoracic extensions — 10 reps
+3. Open books — 8 reps per side
+4. Child's pose — 30 sec
+5. Hip flexor stretch — 30 sec per side
+6. Easy walking — 5 minutes
+
+### Thursday – Shoulders & Postural Strength
+
+1. Wall angels — 2 × 10 reps
+2. Resistance band pull-aparts — 2 × 12 reps
+3. Resistance band external rotations — 2 × 12 reps
+4. Serratus wall slides — 2 × 10 reps
+5. Doorway chest stretch — 30 sec × 2
+
+### Friday – Lower Body Flexibility
+
+1. 90/90 hip switches — 10 reps
+2. Half-kneeling hip flexor stretch — 30 sec per side
+3. Figure-four glute stretch — 30 sec per side
+4. Hamstring stretch — 30 sec per side
+5. Knee-to-wall ankle mobility — 10 reps per side
+
+### Saturday – Full Body Mobility
+
+1. Cat-cow — 10 reps
+2. Thoracic extensions — 10 reps
+3. Open books — 8 reps per side
+4. Child's pose — 30 sec
+5. Hip flexor stretch — 30 sec per side
+6. Figure-four stretch — 30 sec per side
+7. Butterfly stretch — 30 sec
+
+### Sunday – Active Recovery
+
+1. Easy walking — 10 minutes
+2. Cat-cow — 10 reps
+3. 90/90 hip switches — 10 reps
+4. Thoracic extensions — 8 reps
+5. Gentle shoulder-blade retractions — 12 reps
+6. Calf stretch — 30 sec per side
+
+### Daily Desk-Work Habits
+
+- Stand up every 30–60 minutes.
+- Walk for 2–5 minutes during breaks.
+- Keep the monitor at a comfortable eye level.
+- Avoid remaining in one position for several hours.
+- Alternate between sitting and standing if possible.
+
+### Important Guidelines
+
+- Perform exercises slowly and with control.
+- Never force a stretch or push through sharp pain.
+- Mobility should complement gym training, not interfere with recovery.
+- Use resistance appropriate to your individual strength and ability.
+- Consistency is more important than intensity.
+
+> **Neck pain note:** Recurring sharp right-sided neck pain radiating toward the shoulder blade should be individually assessed by a physiotherapist. Avoid painful neck movements and loaded neck exercises until assessed. This programme is for general mobility, not neck-pain treatment.
